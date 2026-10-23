@@ -1,0 +1,1 @@
+# Coinhunter.ai
